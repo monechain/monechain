@@ -8,4 +8,4 @@ Following the steps in our official website or telegram.
 
 # Official Website
 
-http://www.monechain.com/list.asp?classid=1
+http://www.monechain.com/
