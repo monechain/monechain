@@ -4,7 +4,7 @@ Chinese people like red, red symbolizes vitality, happiness and good luck in Chi
 
 # How to get MoneChain
 
-Following the steps in our official website or we telegram.
+Following the steps in our official website or telegram.
 
 # Official Website
 
